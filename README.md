@@ -1,5 +1,4 @@
 Privacy Policy – TradeX Journal  
-Privacy Policy – TradeX Journal
 Last updated: 26 January 2026
 
 TradeX Journal respects your privacy. This Privacy Policy explains how we collect, use, and protect user information when you use our mobile application.
